@@ -1,1 +1,2 @@
 # liitymh
+# LIITY MINEHALLIIN VÄLITTÖMÄSTI!
